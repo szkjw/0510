@@ -1,2 +1,1 @@
-# 0510
-香港台湾新加坡日本
+[0510.txt](https://github.com/szkjw/0510/files/6447275/0510.txt)
